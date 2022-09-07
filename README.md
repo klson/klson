@@ -1,2 +1,2 @@
--> Game Hack Developer
+-> Game Hack Developer /n
 -> CS:GO ApexLegends PUBG RainbowSix WarThunder EscapeFromTarkov 
